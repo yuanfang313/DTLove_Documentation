@@ -1,1 +1,0 @@
-# 2020CapstoneProject_DTLove_Documentation
